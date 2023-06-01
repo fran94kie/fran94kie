@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **frankiechu94@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1THEZNskN9k9FFTjDfeooqftJitRBsXme/view](https://drive.google.com/file/d/1THEZNskN9k9FFTjDfeooqftJitRBsXme/view)
+- 📄 Know about my experiences [https://shorturl.at/bfhr5](https://shorturl.at/bfhr5)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
